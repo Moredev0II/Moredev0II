@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @Moredev0II
-- 👀 I’m interested in honest developing and more...
-- 🌱 I’m currently learning to exclude thieves and hackers
-- 💞️ I’m looking to collaborate on serious business
-- 📫 How to reach me :
+- �                      <!-- @Moredev0II -->
+- � are interested in honest developing and more...
+- � are currently learning to exclude thieves and hackers
+- � are looking for serious business followers
+- 📫 How to reach us :
 
         <!--             septerrain@gmail.com           -->
         
